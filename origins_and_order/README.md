@@ -1,3 +1,5 @@
+###Origins and Order
+
 What do we know about Professor Boolean's past? It's mostly rumor and conjecture, but a few things are known to be true.
 
 Mad Professor Boolean wasn't always a super villain. Early in his career, he was an average paper pusher, working in an office with some very backwards technology. One of his primary jobs was to carry date cards between departments. One morning, he tripped over a unicycle and dropped his date cards on the floor. He hit his head - and hit upon the idea of breeding an army of zombie rabbits to do his bidding and manage simple tasks. But that comes later. Before he could quit with an explosive YouTube video, the professor had to get his cards back in order. 

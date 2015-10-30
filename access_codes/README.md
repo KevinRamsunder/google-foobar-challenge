@@ -1,3 +1,5 @@
+###Access Codes
+
 You've discovered the evil laboratory of Dr. Boolean, and you've found that
 the vile doctor is transforming your fellow rabbit kin into terrifying
 rabbit-zombies! Naturally, you're less-than-happy about this turn of events.
